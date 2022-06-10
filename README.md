@@ -50,7 +50,7 @@ _дистанционное изучение языка по скайпу, ко�
 <summary>✅ Партнерство и сотрудничество:</summary>
   
  #### <div dir="rtl">:Техническое задание (.docx) </div>
- [💾 Download](https://www.dropbox.com/s/33zjm1zg4hm4owa/%D0%A2%D0%B5%D1%85%D0%BD%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5%20%D0%B7%D0%B0%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%BE%D1%82%20SkyFord.rar?dl=1)
+ [💾 Download](https://www.dropbox.com/s/lqfchngpciih52o/%D0%A2%D0%B5%D1%85%D0%BD%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B5%20%D0%B7%D0%B0%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%BE%D1%82%20SkyFord.pdf?dl=1)
   
  #### <div dir="rtl">:Договор на оказание рекламных услуг (.docx) </div>
  [💾 Download](https://www.dropbox.com/s/9pnuyxvk9mc0tsi/%D0%94%D0%BE%D0%B3%D0%BE%D0%B2%D0%BE%D1%80%20%D0%BD%D0%B0%20%D1%80%D0%B5%D0%BA%D0%BB%D0%B0%D0%BC%D1%83%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%B5%D0%B4%D0%BE%D0%BF%D0%BB%D0%B0%D1%82%D0%B5.rar?dl=1)
